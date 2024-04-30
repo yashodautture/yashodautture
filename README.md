@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yashodautture
-- 👀 I’m interested in coidng apart from these watch sone innovative stuffs
+- 👀 I’m interested in codeing apart from this watch some innovative stuffs
 - 🌱 I’m currently learning mastern in compuer science
 - 📫 How to reach me my gmail 
 - 😄 Pronouns: she/her
